@@ -1,1 +1,1 @@
-# h1 Timothy L. Chong
+# Timothy L. Chong
